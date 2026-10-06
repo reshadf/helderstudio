@@ -274,7 +274,7 @@ Na de oplevering laat ik je niet in de steek. 30 dagen gratis support, en daarna
 - Contact
 
 **Contact:**
-📧 reshad@helderstudio.nl
+📧 info@helderstudio.nl
 📍 Nederland
 
 **KVK:** *Wordt binnenkort toegevoegd*
